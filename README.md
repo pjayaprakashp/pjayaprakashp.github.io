@@ -1,2 +1,0 @@
-# pjayaprakashp.github.io
-personal
